@@ -1,1 +1,1 @@
-# dekopinda-aceh-timur
+# dekopinda-karanganyar
